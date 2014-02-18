@@ -1,0 +1,1 @@
+TO jest zawartoœæ pliku drugiego
